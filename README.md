@@ -9,7 +9,10 @@ $\color{#fff4a5}{\textsf{I don't know anyone who is as human as you are."}}$
 
 <p align="center">
  If you go to INT with me and you're blocked, I do apologize! please have someone tell me so I can unblock you ! < / 3
- 
-<img width="250" height="250" alt="ec9abef93b6240c8eaf0723bb3abe55b" src="https://github.com/user-attachments/assets/d0d7fe6f-b109-4345-afa7-7326eb48da0b" /> <img width="150" height="150" alt="3OPw1gAAAAZJREFUAwClQJDkamuj4gAAAABJRU5ErkJggg" src="https://github.com/user-attachments/assets/59e9f608-5e32-470a-9e33-323b1b9b157b" />
+ <p align="center">
+<img width="50" height="50" alt="4pkVUsAAAAGSURBVAMAqlzH5jzAQx8AAAAASUVORK5CYII" src="https://github.com/user-attachments/assets/147719a3-abd1-4b62-87e7-221cef4a7411" />  $\color{#583a20}{\textsf{“hidden amongst the flowers, I found you. laying with the animals.”}}$
+
+
+<img width="125" height="125" alt="BZoZKAAAABklEQVQDAHIZKhVmFbNFAAAAAElFTkSuQmCC" src="https://github.com/user-attachments/assets/2a80a3b7-8d3f-4806-84d0-e201322b3d79" />
 <p align="center">
-  $\color{#583a20}{\textsf{“hidden amongst the flowers, I found you. laying with the animals.”}}$
+<img width="2000" height="500" alt="cDRvSQAAAAZJREFUAwCbUBa0YAvhOQAAAABJRU5ErkJggg" src="https://github.com/user-attachments/assets/71fafb92-3abe-45e0-b311-0986c59451d9" />
