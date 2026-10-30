@@ -3,7 +3,6 @@
 $\color{#ae8b5f}{\textsf{She | They Pronouns please !}}$
 <p align="center">
 <img width="1200" height="433" alt="0672dd579f82a004bef496f43caaef42" src="https://github.com/user-attachments/assets/2f71ee5e-7642-43a6-aea5-364f2b6bc32b" />
-<p align="center">
 $\color{#ffef80}{\textsf{"Nero, you're you. And it's you I want to be with...}}$
 <p align="center">
  $\color{#fff4a5}{\textsf{I don't know anyone who is as human as you are."}}$
